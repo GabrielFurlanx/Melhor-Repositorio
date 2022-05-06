@@ -1,2 +1,2 @@
 # Melhor-Repositorio
-comi o cu de quem ta lendo 
+vc é um brinquedo buzz
