@@ -1,2 +1,2 @@
 # Melhor-Repositorio
-Alterei o conteudo
+comi o cu de quem ta lendo 
